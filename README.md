@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FIRK940713MBCGJR09
+FIRK940713MBCGJR09
